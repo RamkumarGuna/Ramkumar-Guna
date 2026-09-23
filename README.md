@@ -100,9 +100,9 @@
 
 ## 📫 Connect With Me
 
-💼 LinkedIn: [linkedin.com/in/your-linkedin-handle](https://linkedin.com/in/your-linkedin-handle)
+💼 LinkedIn: [linkedin.com/in/your-linkedin-handle](https://linkedin.com/in/Ramkumarguna1093)
 
-📧 Email: your.email@gmail.com
+📧 Email: Ramkumarguna1093@gmail.com
 
 ---
 
