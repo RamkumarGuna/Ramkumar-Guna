@@ -1,4 +1,4 @@
-# Ramkumar-Guna
+# Ramkumar Guna
 
 <h1 align="center">Hi 👋, I'm Ramkumar Gunasekaran</h1>
 <h3 align="center">Data Analyst | Power BI Specialist | SQL | Python</h3>
